@@ -1,0 +1,69 @@
+# Hax! – why you came back ?
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:24.33] So why you come back?
+[00:27.05] Every time I'm all alone in my room
+[00:30.34] So why you come back?
+[00:33.09] I'm tryna guess for now I bet you want me inside you
+[00:36.53] So why you come back?
+[00:39.53] For now I'm running through your shadows
+[00:42.14] So why you come back?
+[00:45.60] I'm tryna forgot you
+[00:47.38] I've been torn by you
+[00:57.88] 
+[00:49.07] I'm more & more lifeless
+[00:51.82] Yeah
+[00:52.73] Just stay with him now
+[00:54.13] No more texts
+[00:55.81] You kill me
+[00:57.80] Again & again & again & again so
+[01:13.80] 
+[01:01.82] Why you came back?
+[01:04.03] Why you came back?
+[01:05.27] Why you came back?
+[01:07.06] Why you came back?
+[01:08.32] Why you came back?
+[01:09.93] Why you came back?
+[01:11.88] Why you came back?
+[01:13.20] Why you came back?
+[01:14.80] Why you came back?
+[01:16.44] Why you came back?
+[01:17.26] Why you came back?
+[01:19.27] Why you came back?
+[01:21.19] Why you came back?
+[01:22.63] Why you came back?
+[01:23.58] Why you ca-
+[01:29.08] 
+[01:26.69] I lost myself but I'm moving on (But I'm moving on)
+[01:32.47] Fighting who I am and who I'm not (Fighting who I am)
+[01:38.03] You told me that I was your cure
+[01:42.14] Now I'm made of scars
+[01:45.35] You told me that I was the one
+[01:48.88] Now I'm always high 'cause
+[01:51.35] Yeah
+[01:53.35] 
+[01:51.99] I'm more & more lifeless
+[01:54.28] Yeah
+[01:54.73] Just stay with him now
+[01:55.96] No more texts
+[01:58.21] You kill me
+[02:00.77] Again & again & again & again so
+[02:16.77] 
+[02:04.28] Why you came back?
+[02:06.11] Why you came back?
+[02:07.58] Why you came back?
+[02:09.11] Why you came back?
+[02:11.05] Why you came back?
+[02:12.34] Why you came back?
+[02:14.05] Why you came back?
+[02:15.78] Why you ca-
+[02:16.88] Why you came back?
+[02:18.75] Why you came back?
+[02:19.67] Why you came back?
+[02:21.88] Why you came back?
+[02:23.49] Why you came back?
+[02:24.73] Why you came back?
+[02:26.23] Why you ca-
+```
